@@ -62,9 +62,6 @@
 ## unchange state continuing up to now.(PRESENT PERFECT)
   *An ice-cap has covered Greenland for something like 5 milion years(PRESENT PERFECT)*
 
-<span style="color: salmon; font-size: 20px;">Creating by Yury Dunets.</span>:end:
-
-
-
+<span style="color: salmon; font-size: 20px;">Creating by Yury Dunets.</span>
 
 
